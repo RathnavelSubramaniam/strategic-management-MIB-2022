@@ -1,0 +1,1 @@
+# strategic-management-MIB-2022
